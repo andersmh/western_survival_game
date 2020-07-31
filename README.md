@@ -1,4 +1,4 @@
-# Western Survival
+# Western Survival (2018)
 ![30](https://user-images.githubusercontent.com/31239471/50516880-8fd17680-0aad-11e9-9184-61f53ece63cc.jpg)
 
 ![31](https://user-images.githubusercontent.com/31239471/50516885-965fee00-0aad-11e9-841f-a273cb1a22d3.jpg)
